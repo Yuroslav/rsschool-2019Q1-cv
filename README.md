@@ -1,1 +1,1 @@
-Yuroslav.github.io
+https://Yuroslav.github.io/rsschool-2019Q1-cv/cv.
